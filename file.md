@@ -1,2 +1,4 @@
 arquivo de texto
-erro de merge
+erro de merge afsdfaksjdhflkajsdhflkjasdhfljkashdlkjfhasldkjf
+
+sadfasd
